@@ -4,7 +4,7 @@
 
 This Privacy Policy describes how Unfair (the "app", "we", "us") collects, uses, and protects information when you use our iOS application and the underlying briefing service.
 
-If you have questions about this policy, contact us at **marrinercallum@gmail.com**.
+If you have questions about this policy, contact us at **callummarrinersocial@gmail.com**.
 
 ## Who we are
 
